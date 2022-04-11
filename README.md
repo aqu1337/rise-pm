@@ -1,1 +1,1 @@
-Aquar1us x els tarafından geliştirilmiştir, rise company x stars community himayesi adında servise sunulmaktadır.
+pm system
